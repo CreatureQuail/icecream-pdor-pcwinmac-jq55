@@ -1,4 +1,4 @@
-# 
+# Professional Icecream PDF Editor templates for Mac OS | Lightweight Icecream PDF Editor templates for PC Windows. Featuring API integration and reimbursements — optimized for maximum performance on every platform.
 
 
 
